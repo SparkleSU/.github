@@ -1,1 +1,1 @@
-# Sparkle group in Samara National Research University (SU)
+# Sparkle org in Samara National Research University (SU)
