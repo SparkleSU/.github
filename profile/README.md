@@ -1,1 +1,1 @@
-# Sparkle team in Samara National Research University
+# Sparkle team in Samara National Research University (SU)
